@@ -2,4 +2,4 @@
 
 Kwatera Hitlera w Gierłoży.
 
-![kwatera hitlera](wilczy1.JPG)
+![kwatera hitlera](wilczy1.jpg)
