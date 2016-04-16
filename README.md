@@ -14,6 +14,7 @@ Ostatecznie został zniszczony przez Niemców w 1945 roku.
 ![Baza noclegowa](wilczy3.jpg)
 
 Tanie noclegi w historycznym hotelu znajdującym się w 2 strefie kwatery.
+[Dziś nocleg zamowić możesz korzystając z tej strony](http://wolfsschanze.pl/ "Tytuł")
 Od 1942 do 1945 roku to tu zatrzymywali się średni rangą oficerowie Wermachtu i SS.
 
 ![Inne bunkry ciężkie](wilczy2.jpg)
