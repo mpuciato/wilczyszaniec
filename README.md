@@ -3,6 +3,7 @@
 Kwatera Hitlera w Gierłoży.
 
 ![Kwatera Hitlera](wilczy1.jpg)
+
 To tu Hitler spędził 800 dni w czasie wojny. Bunier o stropie grubości 7 metrów, 
 był w stanie wytrzymać uderzenie 5 tonowych bomb. Wewnątrz kominek, pokoje gościnne,
 sypialnia, pokój narad. Cały obiekt mial ponad 500metrów kwadratowych powierzchni.
