@@ -27,4 +27,7 @@ Dla dreszczyku emocji śmiałkowie wspinają sie czasem na szyt umocnień.
 
 Dziewiętnaście kilometrów od siedziby Hitlera znajduje sie kwatera Wojsk Lądowych(OKH).
 To tu znajduje się największy kompleks niezniszczonych bunkrów.
-*Największy z nich to bunkier Kwatermistrza Webera.*
+Największy z nich to bunkier Kwatermistrza Webera i schron zwany gigantem.
+20 kilometrów dalej znajdują się także Kwatera Himlera w Pozezdrzu, 
+oraz śluza Leśniewo będąca elementem niedokończonego KanaŁu Mazurskiego.
+[Najciekawsze zdjecia obejrzeć możesz tutaj](https://www.google.pl/search?q=mamerki&biw=1127&bih=588&tbm=isch&imgil=jmcxDgDIe5TFNM%253A%253BSYFTjyyEmyisoM%253Bhttp%25253A%25252F%25252Fmazury.info.pl%25252Fatrakcje%25252Fmamerki%25252F&source=iu&pf=m&fir=jmcxDgDIe5TFNM%253A%252CSYFTjyyEmyisoM%252C_&usg=__mLqd9_wVclRRaZ0Fm3VHNy8vfiA%3D&dpr=1&ved=0ahUKEwiH4t_ij9DMAhVD_iwKHYaXC4EQyjcILA&ei=hiYyV4eHF8P8swGGr66ICA#imgrc=jmcxDgDIe5TFNM%3A)
