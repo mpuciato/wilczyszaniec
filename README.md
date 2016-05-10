@@ -22,3 +22,5 @@ Od 1942 do 1945 roku to tu zatrzymywali się średni rangą oficerowie Wermachtu
 Na terenie znajdują się inne ciężkie schrony. 
 Jednym z nich jest podwójny schron wojsk lądowych i marynarki wojennej.
 Dla dreszczyku emocji śmiałkowie wspinają sie czasem na szyt umocnień.
+
+#*Okolica Kwatery Hitlera*
