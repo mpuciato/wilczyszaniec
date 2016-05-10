@@ -24,7 +24,7 @@ Jednym z nich jest podwójny schron wojsk lądowych i marynarki wojennej.
 Dla dreszczyku emocji śmiałkowie wspinają sie czasem na szyt umocnień.
 
 W okolicy warto zobaczyć jeszcze;
-<ol>
+<ul>
 <li>Kwaterę Wojsk Lądowych (OKH)</li>
 <li>Kwatere Himlera</li>
 <li>Kanał Mazurski</li>
