@@ -23,14 +23,13 @@ Na terenie znajdują się inne ciężkie schrony.
 Jednym z nich jest podwójny schron wojsk lądowych i marynarki wojennej.
 Dla dreszczyku emocji śmiałkowie wspinają sie czasem na szyt umocnień.
 
-W okolicy warto zobaczyć jeszcze;
+##W okolicy warto zobaczyć jeszcze;
 <ul>
-<li>Kwaterę Wojsk Lądowych (OKH)</li>
-<li>Kwatere Himlera</li>
-<li>Kanał Mazurski</li>
-<li>Twierdzę Bojen</li>
-<li>Świętą Lipkę<li/li>
-</ul>Wielkie Jeziora Mazurskie
+###<li>Kwaterę Wojsk Lądowych (OKH)</li>
+###<li>Kanał Mazurski</li>
+###<li>Twierdzę Bojen</li>
+###<li>Świętą Lipkę</li>
+</ul>
 
 #*Okolica Kwatery Hitlera*
 
