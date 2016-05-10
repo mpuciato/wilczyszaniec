@@ -30,6 +30,7 @@ W okolicy warto zobaczyć jeszcze;
 <li>Kanał Mazurski</li>
 <li>Twierdzę Bojen</li>
 <li>Świętą Lipkę<li/li>
+</ul>
 #*Okolica Kwatery Hitlera*
 
 Dziewiętnaście kilometrów od siedziby Hitlera znajduje sie kwatera Wojsk Lądowych(OKH).
