@@ -24,3 +24,7 @@ Jednym z nich jest podwójny schron wojsk lądowych i marynarki wojennej.
 Dla dreszczyku emocji śmiałkowie wspinają sie czasem na szyt umocnień.
 
 #*Okolica Kwatery Hitlera*
+
+Dziewiętnaście kilometrów od siedziby Hitlera znajduje sie kwatera Wojsk Lądowych(OKH).
+To tu znajduje się największy kompleks niezniszczonych bunkrów.
+*Największy z nich to bunkier Kwatermistrza Webera.*
