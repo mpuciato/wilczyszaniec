@@ -32,6 +32,6 @@ Największy z nich to bunkier Kwatermistrza Webera i schron zwany gigantem.
 oraz śluza Leśniewo będąca elementem niedokończonego KanaŁu Mazurskiego.
 [Najciekawsze zdjecia obejrzeć możesz tutaj.](https://www.google.pl/search?q=mamerki&biw=1127&bih=588&tbm=isch&imgil=jmcxDgDIe5TFNM%253A%253BSYFTjyyEmyisoM%253Bhttp%25253A%25252F%25252Fmazury.info.pl%25252Fatrakcje%25252Fmamerki%25252F&source=iu&pf=m&fir=jmcxDgDIe5TFNM%253A%252CSYFTjyyEmyisoM%252C_&usg=__mLqd9_wVclRRaZ0Fm3VHNy8vfiA%3D&dpr=1&ved=0ahUKEwiH4t_ij9DMAhVD_iwKHYaXC4EQyjcILA&ei=hiYyV4eHF8P8swGGr66ICA#imgrc=jmcxDgDIe5TFNM%3A)
 
--Jeśli checie Państwo odwiedzić okolicę polecam wycieczkę z przewodnikiem Marcinem Puciato.-
+<em>Jeśli checie Państwo odwiedzić okolicę polecam wycieczkę z przewodnikiem Marcinem Puciato.</em>
 Możliwe jest zwiedzanie w języku Polskim i Angielskim, nr kontaktowy to 500 799 154.
 
