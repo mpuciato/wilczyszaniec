@@ -25,10 +25,10 @@ Dla dreszczyku emocji śmiałkowie wspinają sie czasem na szyt umocnień.
 
 ##W okolicy warto zobaczyć jeszcze;
 <ul>
-<li>###Kwaterę Wojsk Lądowych (OKH)</li>
-<li>###Kanał Mazurski</li>
-<li>###Twierdzę Bojen</li>
-<li>###Świętą Lipkę</li>
+<li>**Kwaterę Wojsk Lądowych** (OKH)</li>
+<li>Kanał Mazurski</li>
+<li>Twierdzę Bojen</li>
+<li>Świętą Lipkę</li>
 </ul>
 
 #*Okolica Kwatery Hitlera*
