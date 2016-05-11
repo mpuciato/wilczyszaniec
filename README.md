@@ -23,6 +23,22 @@ Na terenie znajdują się inne ciężkie schrony.
 Jednym z nich jest podwójny schron wojsk lądowych i marynarki wojennej.
 Dla dreszczyku emocji śmiałkowie wspinają sie czasem na szyt umocnień.
 
+***
+
+**Ciekawostki o których można tu usłyszeć;**
+<ol>
+<li>W 1942 roku na pobliskim lotnisku zginie Fritz Told - Minister ds. uzbrojenia i amunicji. Wielu Twierdzi, że
+to zle stosunki z Marszałkiem Rzeszy i otoczeniem Hitlera doprowadziły go do śmierci.</li>
+
+<li>Jeśli interesuje Cię historia, to w Wilczym Szańcu doszło do zamachu na Hitlera. 
+W spisku uczestniczyli dwaj Feldmarszałkowie, w tym sławny "Lis Pustyni", 22 generałów, 500 innych oficerów.
+20 lipca 1944 roku Hitler zostanie ranny i jedynie zbieg okoliczności uratuje mu życie. 
+Znany film "Valkiria" z Tomem Cruisem przedstawia te wydarzenia.</li>
+</ol>
+
+
+
+
 ##W okolicy warto zobaczyć jeszcze;
 <ul>
 <li>Kwaterę Wojsk Lądowych (OKH)</li>
